@@ -10,6 +10,7 @@
 🐑0000109385067xsp@al.educacao.sp.gov.br
 
 @f_ryan.n
-![]([Uploading 5981879-Penny.htm…]()
-)
+
+![](https://cdn.dribbble.com/users/969726/screenshots/5981879/pre_comp_1.gif)
+
 
